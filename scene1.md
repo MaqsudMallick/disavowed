@@ -1,4 +1,4 @@
-Evan von Drakos limped through the derelict orchard where iron-leafed elms rattled like coins in a beggar’s cup. Moonlight jagged across his breastplate, silvering the crusted blood that glued his split armor to his aching ribs. Each step bore a new stream of pain, yet the greater ache was the silence—no banter from Deryn, no soft humming from Sister Sura. Six shadows beside him had marched out to river Styx; only his stumbled footsteps returned.
+Evan von Drakos limped through the derelict orchard where iron-leafed weads rattled like coins in a beggar’s cup. Moonlight jagged across his breastplate, silvering the crusted blood that glued his split armor to his aching ribs. Each step bore a new stream of pain, yet the greater ache was the silence—no banter from Deryn, no soft humming from Sister Sura. Six shadows beside him had marched out to river Styx; only his stumbled footsteps returned.
 
 A lone crow croaked from the hedge. Its red eyes gleamed like the flame burning with midnight oil.
 
